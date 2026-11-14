@@ -23,7 +23,8 @@ SS Creative Studio makes AI-generated images, animations and short videos for so
 |---|---|
 | Facebook | [facebook.com/sajipandalam](https://facebook.com/sajipandalam) |
 | YouTube | [@sajipdm](https://youtube.com/@sajipdm) |
-| Instagram / TikTok | @sajipandalam · @sscreativestudio |
+| TikTok | [@sajipdmdxb](https://www.tiktok.com/@sajipdmdxb) |
+| Instagram | [@sajipandalam](https://instagram.com/sajipandalam) · [@sscreativestudio](https://instagram.com/sscreativestudio) |
 
 ---
 
