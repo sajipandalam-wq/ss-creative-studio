@@ -23,8 +23,8 @@ SS Creative Studio makes AI-generated images, animations and short videos for so
 
 | Platform | Link |
 |---|---|
+| Facebook Page | [SS Creative Studio](https://www.facebook.com/profile.php?id=61584245322599) |
 | Facebook (Creator) | [Samuel Saji](https://facebook.com/sajipandalam): 5.8K+ followers |
-| Facebook Page | **SS Creative Studio** |
 | Instagram | [@sajipandalam](https://instagram.com/sajipandalam) |
 | TikTok | [@sajipdmdxb](https://www.tiktok.com/@sajipdmdxb) |
 | YouTube | [@sajipdm](https://youtube.com/@sajipdm) |
