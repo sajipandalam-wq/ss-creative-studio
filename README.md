@@ -2,7 +2,7 @@
 
 ### AI • Art • Anointing
 
-Created by **Saji Pandalam**: Visual Designer · Logo and Brand Identity Creator
+Created by **Saji Pandalam (Samuel Saji)**: Digital Creator · Visual Designer · Logo and Brand Identity Creator
 
 SS Creative Studio makes AI-generated images, animations and short videos for social media, in **English and Malayalam**.
 
@@ -23,8 +23,8 @@ SS Creative Studio makes AI-generated images, animations and short videos for so
 
 | Platform | Link |
 |---|---|
+| Facebook (Creator) | [Samuel Saji](https://facebook.com/sajipandalam): 5.8K+ followers |
 | Facebook Page | **SS Creative Studio** |
-| Facebook | [facebook.com/sajipandalam](https://facebook.com/sajipandalam) |
 | Instagram | [@sajipandalam](https://instagram.com/sajipandalam) |
 | TikTok | [@sajipdmdxb](https://www.tiktok.com/@sajipdmdxb) |
 | YouTube | [@sajipdm](https://youtube.com/@sajipdm) |
