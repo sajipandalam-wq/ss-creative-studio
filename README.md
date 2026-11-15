@@ -27,7 +27,7 @@ SS Creative Studio makes AI-generated images, animations and short videos for so
 | Facebook (Creator) | [Samuel Saji](https://facebook.com/sajipandalam): 5.8K+ followers |
 | Instagram | [@sajipandalam](https://instagram.com/sajipandalam) |
 | TikTok | [@sajipdmdxb](https://www.tiktok.com/@sajipdmdxb) |
-| YouTube | [@sajipdm](https://youtube.com/@sajipdm) |
+| YouTube (Christian content) | [@sajipdm](https://youtube.com/@sajipdm): devotional songs, Bible verses and messages |
 
 ---
 
